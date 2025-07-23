@@ -65,7 +65,7 @@ Assess the effectiveness of an NGO’s social campaigns using project and impact
 
 If you’re hiring or collaborating on data-centric projects, I’d love to chat. Feel free to reach out!
 
-> 📧 joaquinrojash@gmail.com  
+> 📧 joaquinrojash@hotmail.com  
 > 🌐 [LinkedIn](https://linkedin.com/in/joaquinrojash)  
 > 🐙 [GitHub Profile](https://github.com/joaquinrojash)
 
